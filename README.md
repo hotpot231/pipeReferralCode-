@@ -1,4 +1,4 @@
-# [🚀](https://pipecdn.app/signup?ref=c2hhd25oc3)Network3 Referral Code (Free Points)
+# [🚀](https://pipecdn.app/signup?ref=c2hhd25oc3)Pipe Referral Code (Free Points)
 
 Referral Code: c2hhd25oc3
 
@@ -18,4 +18,4 @@ Referral Code: c2hhd25oc3
 
 You will receive more points while your browser is running. In the future, Network3 will convert them into its tokens and you will be able to sell them on the exchange.
 
-#network3ReferralCode #FreePoint
+#PipeReferralCode #FreePoint
